@@ -3,3 +3,4 @@
 - [https://x.com/IsaccoBuccho](https://x.com/IsaccoBuccho)
 - [https://www.youtube.com/channel/UCAKAnw5xzp--uwyrawlzWmw](https://www.youtube.com/channel/UCAKAnw5xzp--uwyrawlzWmw)
 - [http://isaccobuccho.github.io/](http://isaccobuccho.github.io/)
+- [https://yo.fan/isaccobuccho](https://yo.fan/isaccobuccho)
